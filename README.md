@@ -4,3 +4,4 @@ skibidi bobob
 AYANG BEBEB KU LUCU
 SABUB PUN LUCU
 howak
+DIAM
